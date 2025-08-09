@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gfalcioni
--  Vou colaborar com postando o que estou aprendendo.
+- Vou colaborar postando o que estou aprendendo.
 - 📫 How to reach me email: gabrielfalcionisilveira@hotmail.com
 - Linkned: https://www.linkedin.com/in/gabriel-falcioni-silveira/
 
